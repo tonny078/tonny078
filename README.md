@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tonny078
 - 👀 I’m interested in Travelling ✈
-- 🌱 I’m currently learning Eathical hacking & Cyber Security 💻
+- 🌱 I’m currently learning Ethical hacking & Cyber Security 💻
 - 📫 How to reach me on insta o78__tony
 
 <!---
